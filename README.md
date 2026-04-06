@@ -19,3 +19,4 @@ https://xx.youxi186.com/shop/omc.1
 更新网络渗透工具
 https://wwr.lanzoui.com/b01887qgsb
 声明一下请勿使用违法违规用途否则后果自负请勿用于网络非法攻击如果是用于违法违规攻击承担自己承担声明
+卡网https://shop.682fk.com/shop/KHGO6V7Y
