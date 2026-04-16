@@ -20,3 +20,5 @@ https://xx.youxi186.com/shop/omc.1
 https://wwr.lanzoui.com/b01887qgsb
 声明一下请勿使用违法违规用途否则后果自负请勿用于网络非法攻击如果是用于违法违规攻击承担自己承担声明
 卡网https://shop.682fk.com/shop/KHGO6V7Y
+我说白了拿那免费的短信轰炸拿去圈钱有个屁用啊
+我直接公益https://wwr.lanzoui.com/b0188a0szc
